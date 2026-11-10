@@ -21,7 +21,7 @@
 ‎ 
 ‎ ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
-<img src="https://file.garden/advxiibH2A0yI8jq/Untitled168_20261110223924.png" width="240" >ㅤ
+<img src="https://file.garden/advxiibH2A0yI8jq/Untitled168_20261110223924.png" width="220" >ㅤ
 ‎ 
 ‎ 
 ‎  
